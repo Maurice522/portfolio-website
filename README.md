@@ -1,2 +1,2 @@
-# Oulsjeg.github.io
+http://parthmahendru.ml/
 Portfolio
